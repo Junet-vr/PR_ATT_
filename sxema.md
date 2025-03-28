@@ -1,0 +1,1 @@
+![Блок-схема](https://docs.google.com/drawings/d/1O1Omp0oHd34bAJoIq5hB-gCHzoxS5Y0u-4g1qNscR8c/edit?usp=drive_link)
